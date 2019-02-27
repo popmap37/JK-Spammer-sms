@@ -1,1 +1,0 @@
-# JK-Spammer-sms
